@@ -1,4 +1,4 @@
-# 
+# best ClickUp for Windows Plugin | reminders + priority-levels is the best ClickUp for Windows plugin, featuring reminders and priority-levels. Powerful, efficient, and optimized
 
 
 
